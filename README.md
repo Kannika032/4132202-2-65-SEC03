@@ -1,5 +1,4 @@
-kannika srirapan` 
-650112418032 
-IT65
-class 1
-I love IT
+นายอานนท์ การเพียร 
+650112418072
+หมู่ 2
+I Love IT
